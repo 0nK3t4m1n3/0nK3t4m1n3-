@@ -28,8 +28,21 @@ Languages I speak: Spanish, Portuguese, and English
     
 
       
-wewuhfeyuefui3t7et2ufjsnckhwbaoijdxwa
-khweuidoujjfjdhjagdjh
-d
+<p align="center">
+  <img src="https://pbs.twimg.com/media/GzXNxJbWoAAhmGC?format=jpg&name=medium" alt="Mi imagen" width="601"/>
+</p>
+
+
+    
+
+
+Please ask me to take inspiration from my ponies YES. THIS INCLUDES MY COLOURING STYLE. through whispers!
+
+
+
+
+w2i im always off tab. or sign ata bc there's a 40% chance i'm unable 2 respond
+
+
 w 
 efiehgjyregfk
