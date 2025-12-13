@@ -30,6 +30,6 @@ w2i im always off tab. or sign ata bc there's a 40% chance i'm unable 2 respond
 
 
 
-kjklm
+
 jlm,ñ
 mlkmml
