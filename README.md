@@ -19,10 +19,6 @@ I’m not online all the time, but when I am, it bothers me when people cling to
 
 
 
- 
-Languages I speak: Spanish, Portuguese, and English
-
-
 
 **Don’t socialize with me if the community I’m part of makes you uncomfortable**
     
