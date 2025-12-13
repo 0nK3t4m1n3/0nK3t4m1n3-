@@ -17,15 +17,8 @@ I’m not online all the time, but when I am, it bothers me when people cling to
 
 
 
-
-
-
 **Don’t socialize with me if the community I’m part of makes you uncomfortable**
-    
 
-
-
-    
 
 
 Please ask me to take inspiration from my ponies YES. THIS INCLUDES MY COLOURING STYLE. through whispers!
