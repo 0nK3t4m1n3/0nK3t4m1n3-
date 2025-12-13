@@ -28,8 +28,3 @@ Please ask me to take inspiration from my ponies YES. THIS INCLUDES MY COLOURING
 
 w2i im always off tab. or sign ata bc there's a 40% chance i'm unable 2 respond
 
-
-
-
-
-mlkmml
