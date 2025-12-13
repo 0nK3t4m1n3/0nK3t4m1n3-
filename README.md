@@ -27,9 +27,6 @@ Languages I speak: Spanish, Portuguese, and English
 **Don’t socialize with me if the community I’m part of makes you uncomfortable**
     
 
-      
-g.com/media/GzXNxJbWoAAhmGC?format=jpg&name=medium" alt="Mi imagen" width="601"/>
-</p>
 
 
     
