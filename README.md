@@ -27,9 +27,7 @@ I’m not online all the time, but when I am, it bothers me when people cling to
 
 
 
-Please ask me to take inspiration from my ponies YES. THIS INCLUDES MY COLOURING STYLE. through whispers!
-
-
+Please ask me to take inspiration from my ponies YES. THIS INCLUDES MY COLOURING STYLE. 
 
 
 w2i im always off tab. or sign ata bc there's a 40% chance i'm unable 2 respond
