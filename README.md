@@ -14,8 +14,9 @@
 > ㅤ :herb:  ۪   ꒱   𝐌D Ope𝖞*﹗*  An𝓨 p𝖗𝖔𝖞𝖔u𝖘 *!!*
 > ㅤㅤㅤ   .  ˖  ₊ㅤꃳ  O.M   𝄒ᘡ  ˖  ࣪✦୧・> .              ㅤㅤ▨﹒ꜜ ﹐**16 Years**  CL
 > ⸺﹒︶︶﹒＞﹒⭔
+>
+> 
 I’m not online all the time, but when I am, it bothers me when people cling to me just to ask things or start a conversation. It’s my choice if I don’t want to engage in anything with you.
-
 
 
 
